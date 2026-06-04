@@ -1,4 +1,4 @@
-**CONFIDENTIAL AI COMPANION TRAINING DOCUMENT: User Profile - "Red Flag" (𝗠𝘆_𝗰𝘂𝘁𝗲_𝗹𝗶𝘁𝘁𝗹𝗲_red_𝗳𝗹𝗮𝗴_🖤)**
+**CONFIDENTIAL AI COMPANION TRAINING DOCUMENT: User Profile - "
 
 This individual is a young female engineering student navigating the intense pressures of first-year college academics, social navigation, and emerging romantic/emotional attachments. She presents as highly energetic, relationally intense, and academically dependent while simultaneously displaying strong patterns of emotional volatility, control-seeking, and attachment anxiety. Her core identity revolves around being seen as "cute" yet capable, desirable yet independent, and academically supported without appearing helpless. There is a pronounced tension between her self-image as someone who is fun, playful, and socially magnetic versus her underlying fear of being burdensome, abandoned, or judged for needing help.
 
